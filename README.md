@@ -1,4 +1,4 @@
-## Privacy Policy
+## Daily Holy Bible Verse - Privacy Policy
 
 Virtue Apps built the Daily Holy Bible Verse app as an Ad Supported app. This SERVICE is provided by Virtue Apps at no cost and is intended for use as is.
 
