@@ -1,0 +1,1 @@
+# Daily-Holy-Bible-Verse-Privacy-Policy
